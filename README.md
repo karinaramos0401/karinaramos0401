@@ -3,7 +3,8 @@
 - 🔭 Estudante de Sistemas para Internet
 - 🌱 Fazendo transição para Product Designer
 - 😄 Pronouns: Ela/Dela
-- 📫 Ah! Você também pode me contatar pelo linkedIn: https://www.linkedin.com/in/karinaramos04/
+- 📫 Aqui você pode acessar o meu portfólio e conhecer mais sobre o meu trabalho
+
 
 
 
